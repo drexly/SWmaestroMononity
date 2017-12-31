@@ -16,3 +16,4 @@
 ![http://mononity.com](/oldmono&#32;(3).png?raw=true "mononity.com")
 ![http://mononity.com](/oldmono&#32;(1).png?raw=true "mononity.com")
 ![http://mononity.com](/oldmono&#32;(2).png?raw=true "mononity.com")
+![http://mononity.com](/oldmono&#32;(0).png?raw=true "mononity.com")
